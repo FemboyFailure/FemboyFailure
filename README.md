@@ -1,5 +1,5 @@
 # 💫 About Me:
-### Hi there 👋<br><br>🔭 I’m currently working on nothing QwQ  <br>🤝 I’m looking to collaborate on small open-source projects that help beginners learn faster.  <br>👐 I’m looking for help with being happy in life. <br>🌱 I’m currently learning Python and the basics of coding ig.  <br>💬 Ask me about cool sockies ;3.  <br>⚡ Fun fact: I'm a cute femboy!!  <br>
+### Hi there 👋<br><br>🔭 I’m currently working on nothing QwQ  <br>🤝 I’m looking to collaborate on small open-source projects that help beginners learn faster.  <br>👐 I’m looking for help with being happy in life. <br>🌱 I’m currently learning Python and failing at it very much, as well as the basics of coding ig.  <br>💬 Ask me about cool sockies ;3.  <br>⚡ Fun fact: I'm a cute femboy!!  <br>
 
 
 ## 🌐 Socials:
